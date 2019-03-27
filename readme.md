@@ -2,6 +2,7 @@
 
 Yummy recipes for dessert lovers.
 
-> Life is short. Eat dessert first.
+> Life is short. Eat dessert first,
+> work less and vacation MORE!
 >
-> by Ernestine Ulmer
+> by Lea Mishell
