@@ -6,14 +6,14 @@ Purin is the Japanese version of custard pudding or flan.
 
 ### Caramel
 
-- 1 cup (200g) sugar
+- 1/2 cup (100g) sugar
 - 3 tablespoons (50ml) water
 
 ### Custard
 
 - 2 cups (500ml) milk
 - 3 eggs
-- 1/2 cup (100g) sugar
+- 1/4 cup (50g) sugar
 - 1 teaspoon vanilla extract
 
 ## Instructions
