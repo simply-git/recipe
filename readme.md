@@ -2,7 +2,7 @@
 
 Yummy recipes for dessert lovers.
 
-> Life is short. Eat dessert first,
-> work less and vacation MORE!
+> There is no better way to bring
+> people together than with deserts.
 >
-> by Lea Mishell
+> by Gail Simmons
