@@ -36,3 +36,5 @@ Purin is the Japanese version of custard pudding or flan.
    make the liquid smooth.
 4. Add the egg mixture to the pudding cups, and
    steam for 15 to 20 minutes at low heat.
+5. Let the purin cool down and then refrigerate
+   overnight before serving.
